@@ -1,1 +1,0 @@
-# bouman-kartel-attack-on-lipsch-hth
